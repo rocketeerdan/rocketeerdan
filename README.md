@@ -1,5 +1,5 @@
 
-<p align="center"><img src="https://i.imgur.com/rZBl8wX.gif"/> Dan . He/Him . 18 (01/20/06) <img src="https://i.imgur.com/5NeNEcQ.gif"/></p>
+<p align="center"><img src="https://i.imgur.com/rZBl8wX.gif"/> Dan . He/Him . 19 (01/20/06) <img src="https://i.imgur.com/5NeNEcQ.gif"/></p>
 <p align="center">Queer . Asexual . Arospec</p>
 <p align="center">CST . Eng</p>
 <p align="center">
