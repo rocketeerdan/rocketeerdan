@@ -10,9 +10,9 @@
 </p>
 <p align="center">If you're seeing this, you're probably from ponytown, hello!!! :D</p>
 <p align="center">I'm Dan!! Your local autistic guy who plays a pony game instead of getting a job! Feel free to interact, I don't mind!!</p>
-<p align="center">I'm mostly in the OSC area of the safe server! Usually playing as my Journal PPT2 pony!</p>
+<p align="center">I'm either in the OSC area of the safe server or just a general area of the 18+ server!</p>
 <p align="center">I've watched a LOT of Object Shows, more likely than not I'll recognize the show your pony is from!</p>
-<p align="center">My favorite Object Shows are Inanimate Insanity and Paper Puppets Take 2! (I also really like the comic Objectified!!)</p>
+<p align="center">My favorite Object Shows are Paper Puppets Take 2 and Love Of The S*n! (I also really like the comic Objectified!!)</p>
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery97/0fce9c7d.gif?v=47652796"/>
 </p>
