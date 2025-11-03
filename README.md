@@ -26,7 +26,7 @@
 <img src="https://gifcity.carrd.co/assets/images/gallery97/419c72c5.gif?v=47652796"/>
 </p>
 <p align="center">
-<img src="https://media1.tenor.com/m/PNk0yNQbx6AAAAAd/ppt2-paper.gif"/>
+<img src="https://file.garden/YclBjftBp0P7hhLp/Cookie0594-personal2.webp"/>
 </p>
 
 <!--
