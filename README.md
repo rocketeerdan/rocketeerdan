@@ -3,7 +3,7 @@
 <p align="center">Queer . Aroace</p>
 <p align="center">CST . Eng</p>
 <p align="center">
-<img src="https://media1.tenor.com/m/ZPILi1cx1y8AAAAd/inanimate-insanity-ii.gif"/>
+<img src="https://file.garden/YclBjftBp0P7hhLp/Cookie0594-personal2.gif"/>
 </p>
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery97/8367057e.gif?v=47652796"/>
