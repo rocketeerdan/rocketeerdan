@@ -1,5 +1,5 @@
 
-<p align="center"><img src="https://i.imgur.com/rZBl8wX.gif"/> Dan . He/Him/His . 19 (01/20/06) <img src="https://i.imgur.com/5NeNEcQ.gif"/></p>
+<p align="center"><img src="https://i.imgur.com/hibzwNY.gif"/> Dan . He/Him/His . 19 (01/20/06) <img src="https://i.imgur.com/9bYzkQ1.gif"/></p>
 <p align="center">Queer . Aroace</p>
 <p align="center">CST . Eng</p>
 <p align="center">
@@ -21,7 +21,7 @@
 <p align="center">C+H is okay, Booping is okay, pretty much everything is okay!! No need to ask :] </p>
 <p align="center">I'm not a system! Consider all my ponies to be merely cosplay!</p>
 <p align="center">I don't RP! Talk to me as my own person and not as the character I'm playing as please!!</p>
-<p align="center">I'm a bit shy and not too great at talking to strangers unfortunately </p>
+<p align="center">I'm a bit shy and not too great at talking to strangers unfortunately, I'm not mad or upset at you! I'm just bad at talking LOL</p>
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery97/419c72c5.gif?v=47652796"/>
 </p>
