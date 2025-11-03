@@ -3,7 +3,7 @@
 <p align="center">Queer . Aroace</p>
 <p align="center">CST . Eng</p>
 <p align="center">
-<img src="https://file.garden/YclBjftBp0P7hhLp/Cookie0594-personal2.gif"/>
+<img src="https://file.garden/YclBjftBp0P7hhLp/Cookie0594-joy.webp"/>
 </p>
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery97/8367057e.gif?v=47652796"/>
