@@ -9,8 +9,7 @@
 <img src="https://gifcity.carrd.co/assets/images/gallery97/8367057e.gif?v=47652796"/>
 </p>
 <p align="center">If you're seeing this, you're probably from ponytown, hello!!! :D</p>
-<p align="center">I'm Dan! Feel free to interact, I don't mind!!</p>
-<p align="center">I'm either in the OSC area of the safe server or the CRK area of the 18+ server!</p>
+<p align="center">I'm Dan! Grown ass man playing ponytown ok</p>
 <p align="center">I like Cookie Run, Object Shows, and Homestuck! I've liked them all for at least 4-5 years now!</p>
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery97/0fce9c7d.gif?v=47652796"/>
@@ -21,7 +20,7 @@
 <p align="center">C+H is okay, Booping is okay, pretty much everything is okay!! No need to ask :] </p>
 <p align="center">I'm not a system! Consider all my ponies to be merely cosplay!</p>
 <p align="center">I don't RP! Talk to me as my own person and not as the character I'm playing as please!!</p>
-<p align="center">I'm a bit shy and not too great at talking to strangers unfortunately, I'm not mad or upset at you! I'm just bad at talking LOL</p>
+<p align="center">I'm really shy and not too great at talking to strangers unfortunately, I'm not mad or upset at you! I'm just genuinely bad at talking to others</p>
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery97/419c72c5.gif?v=47652796"/>
 </p>
